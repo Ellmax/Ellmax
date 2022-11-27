@@ -1,1 +1,1 @@
-![](https://www.codewars.com/users/EllmaxYT/badges/small)
+![](https://www.codewars.com/users/EllmaxYT/badges/large)
