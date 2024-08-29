@@ -1,1 +1,1 @@
-![](https://www.codewars.com/users/Ellmax/badges/large)
+https://www.youtube.com/watch?v=dQw4w9WgXcQ
